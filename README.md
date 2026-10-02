@@ -161,7 +161,7 @@ We welcome contributions to QuickServe! To contribute:
 
 ## 📬 Contact
 
-Reach out to the QuickServe team via https://quickserve-xq4x.onrender.com or email us at support@testoverseas.com.
+Reach out to me via email me at divitrastogi428@gmail.com.
 
 ---
 
